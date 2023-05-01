@@ -1,3 +1,6 @@
-👋 Hi, I’m @Laefye
+### 👋 Hi, I’m @Laefye
 
-There had to be something beautiful here, but Laefye hasn't decided what will be here yet. ¯\\\_(ツ)\_/¯
+Social networks:
+- [Telegram](https://t.me/laefye)
+- [YouTube](https://www.youtube.com/@laefye)
+- [YouTube Russian](https://www.youtube.com/@laefye-ru)
